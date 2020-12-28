@@ -1,6 +1,6 @@
 # Demo Git Repository
 
-This is the first file in this repo.
+This is the first file in this repo. And this is the second sentence in this paragraph.
 
 ## The Bean Kicked In
 
