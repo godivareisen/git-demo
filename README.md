@@ -42,6 +42,3 @@ The sunset so pretty (Molly), the bean kicked in (Geek, geek, geek, geek)
 ## Mr. Bean Theme Song
 Ecce homo qui est faba.
 Ecce homo qui est faba.
-Vale homo qui est faba, qui est faba, qui est faba
-Vale homo qui est faba
-Vale homo qui est faba, qui est faba
