@@ -38,3 +38,10 @@ The bean kicked in (Molly), bean kicked in (Molly)
 Bean kicked in, man, the bean kicked in (The bean kicked in)
 Wow, damn (Molly), the bean kicked in (I'm geeked out)
 The sunset so pretty (Molly), the bean kicked in (Geek, geek, geek, geek)
+
+## Mr. Bean Theme Song
+Ecce homo qui est faba.
+Ecce homo qui est faba.
+Vale homo qui est faba, qui est faba, qui est faba
+Vale homo qui est faba
+Vale homo qui est faba, qui est faba
